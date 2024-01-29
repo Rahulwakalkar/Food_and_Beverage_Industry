@@ -12,3 +12,10 @@ Power BI: https://lnkd.in/g66xmhYU
 Github link: https://lnkd.in/gn2ZDR3z
 
 Video link: https://lnkd.in/gvJbZuyX
+Which age group prefers energy drinks more? 
+What are the preferred ingredients of energy drinks among respondents?
+What packaging preferences do respondents have for energy drinks?
+Who are the current market leaders?
+
+
+
